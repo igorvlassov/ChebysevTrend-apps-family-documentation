@@ -1,1 +1,1 @@
-# ChebysevTrend-apps-family-documentation
+# ChebysevTrend apps family documentation
