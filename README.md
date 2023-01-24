@@ -1,0 +1,1 @@
+# ChebysevTrend-apps-family-documentation
